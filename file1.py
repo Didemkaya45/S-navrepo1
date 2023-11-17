@@ -1,0 +1,3 @@
+sklıhgı kshv
+osıhvşov
+olıhdvıulb
